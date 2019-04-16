@@ -1,0 +1,1 @@
+# strukdat-06
